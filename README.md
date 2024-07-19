@@ -1,4 +1,4 @@
-## yah im pretty cool subscribe to my bitview acc!!1!!!!
+## yah im pretty cool subcsribe to my bitview acc!!1!!!!
 
 <!--
 **miimiiz/miimiiz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
